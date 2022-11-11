@@ -1,1 +1,1 @@
-# pensamentoconpotacional
+# 1apensamento
